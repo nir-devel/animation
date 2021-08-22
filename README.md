@@ -1,2 +1,6 @@
 # animation
-![hippo](https://media3.giphy.com/media/aUovxH8Vf9qDu/giphy.gif)
+![](http://i.imgur.com/OUkLi.gif)
+
+![](http://i.imgur.com/Ssfp7.gif)
+
+![](http://i.imgur.com/60bts.gif)
